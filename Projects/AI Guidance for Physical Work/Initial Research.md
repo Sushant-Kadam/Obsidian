@@ -1,0 +1,1 @@
+![[Initial Research 2026-07-26 16.04.42.excalidraw]]
